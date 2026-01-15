@@ -5,7 +5,7 @@ I build digital things out of Canada, Montreal. The 💰 earned from these stuff
 
 
 
-If you enjoy BBQ 🥩🤤 or tv show dramas, feel free to connect on any of these platforms!!
+Only connect with me on any of these platforms if you enjoy BBQ 🥩🤤 or tv show dramas 👀
 
 ---
 [![Linkedin](https://upload.wikimedia.org/wikipedia/commons/8/81/LinkedIn_icon.svg)](https://www.linkedin.com/in/alann13/)
